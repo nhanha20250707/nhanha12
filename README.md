@@ -15,4 +15,4 @@
 无需注册，快速访问经典和热门影片，满足各类观看需求。平台每日更新内容，确保你第一时间观看到最热影片。
 立即体验，享受流畅、高清的日本AV娱乐，带来无忧观看享受！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/nhanha20250707/nhanha12 ）</span>
